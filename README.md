@@ -1,2 +1,2 @@
 # Important Questions
-Here we list the questions which are important for our class. This page shall be updated regularly so please check it from time to time. 
+Here we list the questions which are important for our class. This page shall be updated regularly so please check it from time to time. $X^2$
